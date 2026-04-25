@@ -1,2 +1,5 @@
-![1000003883](https://github.com/user-attachments/assets/18fdad0c-2c58-42ff-82d9-2fd09243d9f5)
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31wbtqmt2zpeeimnv4h6kk47dikq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
