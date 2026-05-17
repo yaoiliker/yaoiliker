@@ -6,7 +6,7 @@
 
 
 <p align="center">
-  creds : @fuoco1007 on twt
+  creds : @fuoco1007 on twt .✦ ݁˖
 </p
 
 
