@@ -5,8 +5,4 @@
   $\color{#C6C4D8}{\text{" You're.. worthy of my grace. " ♡}}$
 
 
-<p align="center">
-  creds : @fuoco1007 on twt .✦ ݁˖
-</p
-
 
