@@ -2,7 +2,5 @@
 
 
 <p align="center">
-  $\color{#C6C4D8}{\text{" You're worthy of my grace. " ♡}}$
-
-
+  $\color{#C6C4D8}{\text{" You're.. worthy of my grace. " ♡}}$
 
