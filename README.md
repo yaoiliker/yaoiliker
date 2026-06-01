@@ -1,6 +1,6 @@
 <p align="center"
  
-  ![](https://komarev.com/ghpvc/?username=yaoiliker&label=gracefulness&color=d4c8be)
+  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=gracefulness&color=d4c8be)
 
 <p></p><p></p>
 
