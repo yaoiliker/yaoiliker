@@ -4,10 +4,10 @@
 
 <p></p><p></p>
 
-<img src="https://github.com/user-attachments/assets/7f68e486-aa2e-43bd-bae3-b432ae966cb4" />
+<img src="https://github.com/user-attachments/assets/91f51592-ffd8-49b1-9667-8f7487b59406"  />
 
 
 <p></p><p></p>
 <p></p><p></p>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fraunces&size=20&pause=1000&color=DEC9BD&center=true&vCenter=true&random=true&width=435&lines=And%2C+I+couldn't+help+but+fall+in+love+again;No%2C+I+couldn't+help+but+fall+in+love+again." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fraunces&size=15&pause=1000&color=DEC9BD&center=true&vCenter=true&random=true&width=435&lines=And%2C+I+couldn't+help+but+fall+in+love+again;No%2C+I+couldn't+help+but+fall+in+love+again." alt="Typing SVG" /></a>
