@@ -2,6 +2,10 @@
  
   ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=gracefulness&color=d4c8be)
 
+ <p align="center"
+
+<sub>[strawpage](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤㅤㅤ<sub>[atabook](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤㅤㅤㅤㅤ<sub>rentry (i'll make it soon)</sub>ㅤ 
+
 <p></p><p></p>
 
 <img src="https://github.com/user-attachments/assets/91f51592-ffd8-49b1-9667-8f7487b59406"  />
