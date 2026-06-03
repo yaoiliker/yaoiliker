@@ -4,8 +4,7 @@
 
  <p align="center"
 
-<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤ<sub>[**rentry**](https://rentry.co/starbruised)  (wip) 
-ps. rentry best view on phone..</sub>ㅤ 
+<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤ<sub>[**rentry**](https://rentry.co/starbruised)  (wip, best view on mobile)</sub>ㅤ 
 
 <p></p><p></p>
 
