@@ -4,7 +4,8 @@
 
  <p align="center"
 
-<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤ<sub>**rentry** (i'll make it soon)</sub>ㅤ 
+<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤ<sub>[**rentry**](https://rentry.co/starbruised)   
+(rentry best view on phone..)</sub>ㅤ 
 
 <p></p><p></p>
 
