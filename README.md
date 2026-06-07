@@ -19,4 +19,4 @@
 
  <p align="center"
 
-<sub>[**callout**](https://rentry.co/mybrainisrottingcallout)</sub>
+<sub>[**callout**](https://rentry.co/voidcallout)</sub>
