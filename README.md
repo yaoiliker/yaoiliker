@@ -15,3 +15,8 @@
 <p></p><p></p>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fraunces&size=15&duration=2500&pause=1000&color=DEC9BD&center=true&vCenter=true&random=true&width=435&lines=And+I+couldn't+help+but+fall+in+love+again;No%2C+I+couldn't+help+but+fall+in+love+again" alt="Typing SVG" /></a>
+
+
+ <p align="center"
+
+<sub>[**callout**](https://rentry.co/mybrainisrottingcallout)</sub>
