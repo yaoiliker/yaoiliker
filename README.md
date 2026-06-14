@@ -19,4 +19,4 @@
 
  <p align="center"
 
-<sub>[**callout**](https://rentry.co/voidcallout)</sub>
+<sub>[**@mybrainisrotting callout**](https://rentry.co/voidcallout)</sub> <sub>[**@Iiminal CALLOUT**](https://docs.google.com/document/d/1ogx57DQu4qoASJEhgH4_HtlmGqwZiC0nOf96Z64zJCI/edit?usp=drivesdk)
