@@ -1,6 +1,6 @@
 <p align="center"
  
-  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=gracefulness&color=d4c8be)
+  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=friendships&color=DB7093)
 
  <p align="center"
 
@@ -8,13 +8,13 @@
 
 <p></p><p></p>
 
-<img src="https://github.com/user-attachments/assets/91f51592-ffd8-49b1-9667-8f7487b59406"  />
+<img src="https://github.com/user-attachments/assets/8cbf8986-eafb-4b93-b6cc-6143e9a390cb" />
 
 
 <p></p><p></p>
 <p></p><p></p>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fraunces&size=15&duration=2500&pause=1000&color=DEC9BD&center=true&vCenter=true&random=true&width=435&lines=And+I+couldn't+help+but+fall+in+love+again;No%2C+I+couldn't+help+but+fall+in+love+again" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Yuyu&size=25&pause=1000&color=DB7093&center=true&vCenter=true&width=435&lines=I+guess+this+time+you're+really+leaving;I+heard+your+suitcase+say+goodbye;Well%2C+as+my+broken+heart+lies+bleeding;You+say+true+love%2C+it's+suicide" alt="Typing SVG" /></a>
 
 
  <p align="center"
