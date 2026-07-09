@@ -15,8 +15,3 @@
 <p></p><p></p>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Yuyu&size=25&pause=1000&color=DB7093&center=true&vCenter=true&width=435&lines=I+guess+this+time+you're+really+leaving;I+heard+your+suitcase+say+goodbye;Well%2C+as+my+broken+heart+lies+bleeding;You+say+true+love%2C+it's+suicide" alt="Typing SVG" /></a>
-
-
- <p align="center"
-
-<sub>[**@mybrainisrotting callout**](https://rentry.co/voidcallout)</sub> <sub>[**@Iiminal CALLOUT**](https://docs.google.com/document/d/1ogx57DQu4qoASJEhgH4_HtlmGqwZiC0nOf96Z64zJCI/edit?usp=drivesdk)
