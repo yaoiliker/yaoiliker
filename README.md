@@ -1,6 +1,6 @@
 <p align="center"
  
-  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=friendships&color=CCCC66)
+  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=friendships&color=a7d8de)
 
  <p align="center"
 
@@ -8,7 +8,7 @@
 
 <p></p><p></p>
 
-<img src="https://github.com/user-attachments/assets/8cbf8986-eafb-4b93-b6cc-6143e9a390cb" />
+<img src="https://github.com/user-attachments/assets/e66cb72e-4acf-4612-bf45-3a86829ca65a" />
 
 
 <p></p><p></p>
