@@ -1,6 +1,4 @@
-<p align="center"
- 
-  ![](https://komarev.com/ghpvc/?username=yaoiliker&style=for-the-badge&label=friendships&color=a7d8de)
+
 
  <p align="center"
 
