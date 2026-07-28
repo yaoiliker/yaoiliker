@@ -6,8 +6,10 @@
 
 <p></p><p></p>
 
-<img src="https://github.com/user-attachments/assets/e66cb72e-4acf-4612-bf45-3a86829ca65a" />
+
+<img src="https://github.com/user-attachments/assets/5d176b8d-19a4-4ebf-8e46-36af69ea9fa7" />
 
 
-<p></p><p></p>
-<p></p><p></p>
+ <p align="center"
+
+ <sub>remaking this rq watch out</sub>
