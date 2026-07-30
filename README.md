@@ -2,7 +2,7 @@
 
  <p align="center"
 
-<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://christmaskids.atabook.org/)</sub>ㅤㅤㅤ<sub>[**rentry**](https://rentry.co/starbruised)</sub>ㅤ 
+<sub>[**strawpage**](https://staigstrwberry.straw.page/)</sub>  ㅤㅤㅤ<sub>[**新book**](https://praisekink.atabook.org/)</sub>ㅤㅤㅤ<sub>[**rentry**](https://rentry.co/starbruised)</sub>ㅤ 
 
 <p></p><p></p>
 
