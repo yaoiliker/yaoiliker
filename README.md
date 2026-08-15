@@ -2,7 +2,7 @@
 
  <p align="center"
 
-[**strawpage**](https://staigstrwberry.straw.page/)  ㅤㅤㅤ[**新book**](https://praisekink.atabook.org/)ㅤㅤㅤ[**rentry**](https://rentry.co/starbruised)ㅤ 
+[**strawpage**](https://staigstrwberry.straw.page/)  ㅤㅤㅤ[**新book**](https://praisekink.atabook.org/)ㅤㅤㅤ[**info**](https://fluffle.cc/iacedlove)ㅤ 
 
 <p></p><p></p>
 
