@@ -5,22 +5,9 @@
 $\color{#a8daf9}\text{⊹₊˚‧︵‿₊୨}$‎ ‎ ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=yaoiliker&label=˗ˏˋ_♡_ˎˊ˗&style=flat-square&color=88d7eb) ‎ ‎ ‎ ‎ $\color{#92d2f9}\text{୧₊‿︵‧˚₊⊹}$
 
  <p></p>
+  <p></p>
+   <p></p>
 
- <img src="https://github.com/user-attachments/assets/0e2595b3-5b76-4f55-9340-74a47880f2ed" />
-
-<div align="center">
- 
-$\color{#e4edf2}\text{⤷ ゛ }$
-$\color{#cde2ee}\text{to}$
-$\color{#bbdcf0}\text{become}$
-$\color{#a8daf9}\text{a}$
-$\color{#92d2f9}\text{star}$
-
-<p></p>
-
-$\color{#e4edf2}\text{you}$
-$\color{#bbdcf0}\text{must}$
-$\color{#92d2f9}\text{burn‎‎ ‎ ‎ ‎ˎˊ˗}$
 
 <div align="center">
   
@@ -43,5 +30,15 @@ $\color{#92d2f9}\text{burn‎‎ ‎ ‎ ‎ˎˊ˗}$
   
   </tr>
 </table>
+
+<div align="center">
+ 
+<details>
+  <summary>$\color{#92d2f9}\text{♡♡}$</summary>
+  <a href="https://github.com/Mailjeevv">01 ♡</a>
+  <a href="https://github.com/zegects">02 ♡</a>
+  <a href="https://github.com/kaijine">03 ♡</a>
++ + all my green names</details>
+
 
 <img src="https://github.com/user-attachments/assets/626224c4-3796-44ca-9f51-b856b6082133" />
