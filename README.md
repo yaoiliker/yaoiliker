@@ -6,7 +6,9 @@
  
  <p></p>
 
- <sub>remaking this rq watch out</sub>
+ <p align="center"
+  
+  <sub>bear with me</sub>
 
 <p></p>
 
