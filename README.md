@@ -34,11 +34,17 @@ $\color{#a8daf9}\text{⊹₊˚‧︵‿₊୨}$‎ ‎ ‎ ‎ ‎ ![](https://k
 <div align="center">
  
 <details>
-  <summary>$\color{#92d2f9}\text{♡♡}$</summary>
-  <a href="https://github.com/Mailjeevv">01 ♡</a>
-  <a href="https://github.com/zegects">02 ♡</a>
-  <a href="https://github.com/kaijine">03 ♡</a>
-+ + all my green names</details>
+  <summary><small>$\color{#92d2f9}\text{thank u ♡}$</summary>
+  <a href="https://github.com/pt-players"><sub>@pt-players</sub></a>
+  <a href="https://github.com/title-town"><sub>@title-town</sub></a>
+   <a href="https://github.com/pt-hall-of-media"><sub>@pt-hall-of-media</sub></a>
+   <a href="https://github.com/pt-of-awesomeness"><sub>@pt-of-awesomeness</sub></a>
+   <a href="https://github.com/pt-fashion"><sub>@pt-fashion</sub></a>
+   <a href="https://github.com/pt-walk-of-fame"><sub>@pt-walk-of-fame</sub></a>
+   <a href="https://github.com/pt-medals"><sub>@pt-medals</sub></a>
+   <a href="https://github.com/ponychievements"><sub>@ponychievements</sub></a>
+   <a href="https://github.com/fans-town"><sub>@fans-town</sub></a>
+</details>
 
 
 <img src="https://github.com/user-attachments/assets/626224c4-3796-44ca-9f51-b856b6082133" />
