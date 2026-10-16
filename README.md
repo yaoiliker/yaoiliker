@@ -2,7 +2,6 @@
 
 <p align="center"
 
-$\color{#ba97a2}\text{⊹₊˚‧︵‿₊୨}$‎ ‎ ‎ ‎ ‎ <img alt="GitHub followers" src="https://img.shields.io/github/followers/yaoiliker?style=flat-square&label=angels&labelColor=cf9bab&color=cf9bab"> ‎ ‎ ‎ ‎ $\color{#cba2bc}\text{୧₊‿︵‧˚₊⊹}$
 
  <p></p>
   <p></p>
