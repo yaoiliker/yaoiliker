@@ -32,7 +32,7 @@
 <div align="center">
  
 <details>
-  <summary><small>$\color{#ead7d2}\text{ᵗʰᵃⁿᵏ ᵘ ♡}$</summary>
+  <summary><small>$\color{#ead7d2}\text{♡ˊ͈ ꒳ ˋ͈}$</summary>
   <a href="https://github.com/pt-players"><sub>@pt-players</sub></a>
   <a href="https://github.com/title-town"><sub>@title-town</sub></a>
    <a href="https://github.com/pt-hall-of-media"><sub>@pt-hall-of-media</sub></a>
