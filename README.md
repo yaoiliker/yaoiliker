@@ -1,9 +1,6 @@
-<p align="center"
-
- <sub>remaking everything</sub>ㅤ
 ㅤ
-<p></p>
-
+ㅤ
+ㅤ
 <p align="center"
 
 <sub>[fluffle.cc](https://fluffle.cc/iacedlove)ㅤㅤ[atabook](https://praisekink.atabook.org/)ㅤㅤ[strawpage](https://staigstrwberry.straw.page/)ㅤㅤ[listo](https://listography.com/painfuIyearning)</sub>
