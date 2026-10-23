@@ -1,12 +1,16 @@
+<p align="center"
+
+ <sub>remaking everything</sub>ㅤ
 ㅤ
-ㅤ
-ㅤ
+<p></p>
+
 <p align="center"
 
 <sub>[fluffle.cc](https://fluffle.cc/iacedlove)ㅤㅤ[atabook](https://praisekink.atabook.org/)ㅤㅤ[strawpage](https://staigstrwberry.straw.page/)ㅤㅤ[listo](https://listography.com/painfuIyearning)</sub>
 
 <p></p>
 <p></p>
+ㅤ
 <div align="center">
  
 <details>
@@ -26,9 +30,6 @@
    <p></p>
    <a href="https://github.com/deepaffection"><sub>@deepaffection</sub></a>ㅤ<a href="https://github.com/tamonsbside"><sub>@tamonsbside</sub></a>ㅤㅤ<sub>+ㅤmore</sub>
 </details>
-
-<p></p>
-ㅤㅤㅤㅤㅤ<sub>remaking everything</sub>
 ㅤ
 ㅤ
 ㅤ
