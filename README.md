@@ -14,7 +14,7 @@
   <summary><small>$\color{#ead7d2}\text{ㅤㅤ(♡ˊ͈ ꒳ ˋ͈)}$</summary>
   <p></p>
    <a href="https://github.com/Mailjeevv"><sub>@mailjeevv</sub></a>       
-   ㅤ<a href="https://github.com/zegects"><sub>@zegects</sub></a>       
+   ㅤ<a href="https://github.com/brandozos"><sub>@brandozos</sub></a>       
    ㅤ<a href="https://github.com/kaijine"><sub>@kaijine</sub></a>      
    ㅤ<a href="https://github.com/horroryaoi"><sub>@horroryaoi</sub></a>ㅤ𖹭
   
