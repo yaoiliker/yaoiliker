@@ -18,7 +18,7 @@
    ㅤ<a href="https://github.com/kaijine"><sub>@kaijine</sub></a>      
    ㅤ<a href="https://github.com/horroryaoi"><sub>@horroryaoi</sub></a>ㅤ𖹭
   
-ㅤㅤ<a href="https://github.com/r4n-reii"><sub>@r4n-reii</sub></a>ㅤ<a href="https://github.com/infugue"><sub>@infugue</sub></a>ㅤ<a href="https://github.com/Dirtbaggy"><sub>@dirtbaggy</sub></a>ㅤ<a href="https://github.com/serranavarro"><sub>@serranavarro</sub></a>ㅤ<a href="https://github.com/denguemon"><sub>@denguemon</sub></a>ㅤ<a href="https://github.com/ghostly-sorrows"><sub>@ghostly-sorrows</sub></a>ㅤ<a href="https://github.com/nayancats"><sub>@nayancats</sub></a>ㅤ<a href="https://github.com/misteria0"><sub>@misteria0</sub></a>ㅤ<a href="https://github.com/deepaffection"><sub>@deepaffection</sub></a>ㅤ<a href="https://github.com/tamonsbside"><sub>@tamonsbside</sub></a>ㅤㅤ<sub>+ㅤmore</sub>
+ㅤㅤ<a href="https://github.com/r4n-reii"><sub>@r4n-reii</sub></a>ㅤ<a href="https://github.com/infugue"><sub>@infugue</sub></a>ㅤ<a href="https://github.com/Dirtbaggy"><sub>@dirtbaggy</sub></a>ㅤ<a href="https://github.com/serranavarro"><sub>@serranavarro</sub></a>ㅤ<a href="https://github.com/ghostly-sorrows"><sub>@ghostly-sorrows</sub></a>ㅤ<a href="https://github.com/nayancats"><sub>@nayancats</sub></a>ㅤ<a href="https://github.com/misteria0"><sub>@misteria0</sub></a>ㅤ<a href="https://github.com/deepaffection"><sub>@deepaffection</sub></a>ㅤ<a href="https://github.com/tamonsbside"><sub>@tamonsbside</sub></a>ㅤㅤ<sub>+ㅤmore</sub>
 </details>
 ㅤ
 ㅤ
